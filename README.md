@@ -1,0 +1,1 @@
+# Pinnacle-Studio-26.0.1.182-Crack
